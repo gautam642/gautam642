@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **kannuisgmj@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1TW-qy3i6le3ItQ-g43NCNbuWE0Bt5gDF/view?usp=drive_link]
+- 📄 Know about my experiences [https://drive.google.com/file/d/1IIPF6R7FByP0gxEQ_J5cRPLU027y6AND/view?usp=sharing]
 
 - ⚡ Fun fact **i am a movie buff**
 
